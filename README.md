@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @habiba-135
+- 👀 I’m interested in reading and writing
+- 🌱 I’m currently learning python
+- 😄 Pronouns: she / her
